@@ -1,2 +1,5 @@
 - 👋 Hi, I’m @GreatSea1
 - 👀 I fell
+- Bebra
+- Jija
+- Амогус
